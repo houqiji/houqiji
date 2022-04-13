@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @houqiji
-- 👀 I’m interested in 'Europa Universails IV' 'City SkyLine' 'OverWatch'...
--                       mathmatic history philosophy and psychoanalysis
+- 👀 I’m interested in 'Europa Universails IV' 'City SkyLine' 'OverWatch'... /mathmatic history philosophy and psychoanalysis
 - 🌱 I’m currently learning CS
 - 📫 How to reach me :-> Email:houqiji@hotmail.com
 - 🚫NO Politics
